@@ -1,1 +1,1 @@
-You have to finish task till next monday lesson hour
+You have to finish task till friday lab hour
